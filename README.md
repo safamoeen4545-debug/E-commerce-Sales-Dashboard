@@ -94,5 +94,5 @@ This dashboard can help businesses:
 **Safa Moeen**  
 Aspiring Data Analyst | Power BI | Excel | SQL | Python  
 
-📫 Email: fasiha.moeen4@gmail.com  
-🔗 LinkedIn: *(Add your LinkedIn profile link here)*  
+📫 Email: safa.moeen4545@gmail.com  
+🔗 LinkedIn: *(https://www.linkedin.com/in/safa-moeen-90b7bb261/)*  
